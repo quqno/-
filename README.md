@@ -1,3 +1,12 @@
 <div align="center">
-<img width="500" height="414" alt="3edeb7875fa2c01b8aa01eb6a626e2fe" src="https://github.com/user-attachments/assets/21de08a2-a43b-4e85-a242-542f84d5e36b" />
-fgdg
+<img width="500" height="294" alt="as" src="https://github.com/user-attachments/assets/61a03168-8954-4fb6-9911-89b48f3e8dce" />
+
+
+<div align="center">
+────୨ৎ────
+
+⋮ㅤ<ins>po</ins>lina ㅤ/ㅤ p*o*lyaㅤ၄၃
+
+[carrd](https://quqno.carrd.co/) ‧ [info](https://t.me/quqnoinfo) ‧ [artchannel](https://t.me/quqn0)
+<div align="center">
+^_^
